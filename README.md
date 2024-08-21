@@ -9,5 +9,8 @@ conseguir uma boa vaga de emprego e assim poder começar a vida da meneira que s
 Sou apaixoada pela natureza, amo lugares silenciosos e de paz. Meu sonho é cuidar de pessoas e ajuda-lás a escontrar a prória paz 
 (medicina ou cuidadora de crianças e idosos). Um pouco marrenta mas, com o coração generoso e uma mente curiosa, um tipo de pessoa que 
 pequenas ações podem fazer uma grande diferença no mundo🌎❤️.
+
+Caso queira entrar em contato comigo (manuellajkl007@gmail.com) - email pessoal
+ou (00001094660255sp@al.educacao.sp.gov.br) - escolar. 
 ![medicina](https://media1.tenor.com/m/X-WOz6HphQ4AAAAC/get-well-get-well-soon.gif)
 

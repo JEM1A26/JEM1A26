@@ -1,8 +1,8 @@
 ## Bom dia, boa tarde, boa noite! Bem vindos ao meu perfil! 💞
 
-Bom, meu nome é Manuella Lohane, tenho 16 anos, atualmente estudo na E.E. José Ephim Mindlin e estou cursando a 1º série do ensino médio📚, 
+Oii, meu nome é Manuella Lohane, tenho 16 anos, atualmente estudo na E.E. José Ephim Mindlin e estou cursando a 1º série do ensino médio📚, 
 e também estou cursando a disciplina de tecnologia, fazendo o uso da plataforma alura, é bem complicadinho mas estou adorando!
-sou de São Paulo-SP, mas aos 18 pretendo me mudar para Recife-PE, para vivencias coisas novas, conhecer lugares e pessoas e trabalhar também.
+Sou de São Paulo-SP, mas aos 18 pretendo me mudar para Recife-PE, para vivencias coisas novas, conhecer lugares e pessoas e trabalhar também.
 Sou menina nova mas cheia de força de vontade e coragem para enfrentar o que vier para e ter uma vida profissional e pessoal de exelência, 
 no momento não faço nenhum tipo de atividade extracurricular, mas pretendo começar em breve, para futuramente ter maior facilitade de 
 conseguir uma boa vaga de emprego e assim poder começar a vida da meneira que sempre sonhei.

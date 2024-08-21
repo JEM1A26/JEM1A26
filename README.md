@@ -12,5 +12,7 @@ pequenas ações podem fazer uma grande diferença no mundo🌎❤️.
 
 Caso queira entrar em contato comigo (manuellajkl007@gmail.com) - email pessoal
 ou (00001094660255sp@al.educacao.sp.gov.br) - escolar. 
+
+
 ![medicina](https://media1.tenor.com/m/X-WOz6HphQ4AAAAC/get-well-get-well-soon.gif)
 
